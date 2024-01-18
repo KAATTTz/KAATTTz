@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @KAATTTz
+- 👀 I’m interested in Project management
+- 💞️ Pronouns: She/Her
+- 📫 How to reach me by Direct massage ✨
