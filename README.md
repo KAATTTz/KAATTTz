@@ -1,4 +1,1 @@
-- 👋 Hi, I’m @KAATTTz
-- 👀 I’m Cats lover
-- 💞️ Pronouns: She/Her/ihr 
-- 📫 How to reach me by Direct massage ✨
+📫 How to reach me by Direct massage ✨
